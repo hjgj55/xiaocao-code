@@ -25,7 +25,8 @@ A： 请放心。您可以直接付款，然后在聊天窗口或通过邮件留
 实力证明：我们的草榴账号截图
 口说无凭，实力见证。以下是我们资深账号的真实截图，证明我们渠道的稳定与可靠。
 
-
+https://github.com/hjgj55/xiaocao-code/blob/main/cl1.jpg
+https://github.com/hjgj55/xiaocao-code/blob/main/cl2.jpg
 
 <p style="text-align: center; font-size: 12px;">(图片ALT文本：草榴社区用户中心截图，显示高等级用户组和活跃度，证明是资深玩家)</p>
 声明与其他服务
